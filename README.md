@@ -33,6 +33,10 @@ Cilent:
 
 LokerDEV's V25
 
-Download - NOT UPLOADED YET
+Download:
+
+Server - NOT UPLOADED YET!
+
+APK - NOT UPLOADED YET!
 
 Thanks for Downloading and seeing the cilent!
