@@ -35,8 +35,8 @@ LokerDEV's V25
 
 Download:
 
-Server - NOT UPLOADED YET!
+Server - https://www.mediafire.com/file/0n5bk2d8sa3bqzm/Brawlidays-Brawl-24-main.zip/file
 
-APK - NOT UPLOADED YET!
+APK - https://www.mediafire.com/file/weaysgi30ibqzr3/Brawlidays+Brawl.apk/file
 
 Thanks for Downloading and seeing the cilent!
