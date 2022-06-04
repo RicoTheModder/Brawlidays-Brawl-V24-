@@ -39,4 +39,6 @@ Server - https://www.mediafire.com/file/0n5bk2d8sa3bqzm/Brawlidays-Brawl-24-main
 
 APK - https://www.mediafire.com/file/weaysgi30ibqzr3/Brawlidays+Brawl.apk/file
 
+Server (Fixed) https://www.mediafire.com/file/5dpshxeicn2gwtc/Brawlidays-Brawl-main.zip/file
+
 Thanks for Downloading and seeing the cilent!
