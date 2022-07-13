@@ -6,7 +6,7 @@
 
 Brawlidays Brawl is a V24 Server With the
 Brawl Stars Pirate Update i have modded the v25 
-and its a v24 yet (with max(
+and its a v24 yet (with max)
 Thanks for Helping me on the Brawl Stars Turkish
 Modding Server (GroodX) Sorry For My Bad English
 
